@@ -2,7 +2,7 @@
 - 👀 Soy un niño nacido en 2010.
 - 🌱 Mi interes sobre la tecnologia desde pequeño me hizo hacer muchos proyectos.
 - 💞️ Me gusta colaborar.
-- 📫 Puedes contactarme desde mi Instagram o correo (serverkly@gmail.com, @kly_tu_bebe)
+- 📫 Puedes contactarme desde mi Instagram o correo (serverkly@gmail.com, @ilias.kly)
 - 😄 Me pueden llamar Kly, KlyDev y mas...
 - ⚡ Aprendo rapido.
 
